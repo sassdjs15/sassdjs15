@@ -1,7 +1,7 @@
 
 ## Preazer, me chamo Sarah de Jesus S.🤝
 
-Sou uma programadora em formação, estou em contante progresso para aperfeiçoar meu conhecimento nas áreas que tenho interesse 😁
+Sou uma programadora em formação, estou em constante progresso para aperfeiçoar meu conhecimento nas áreas que tenho interesse 😁
 
 ### Áreas de Interesse:
 
